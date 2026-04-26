@@ -1,6 +1,6 @@
 - [How Can A Wind Turbine Be Motionless?](https://youtu.be/OkRqVBpO2BQ)
 - [Are Shrouded Rooftop Wind Turbines the Future of Energy?](https://youtu.be/SGQTwcq0UIY)
-- [The Future of Solid State Wind Energy - No More Blades](https://youtu.be/nNp21zTeCDc0
+- [The Future of Solid State Wind Energy - No More Blades](https://youtu.be/nNp21zTeCDc0)
 - [This Could CHANGE Home Wind Energy Forever!](https://youtu.be/AyF0td7oygM)
 - [The Challenges of a Wind Turbine on Your Home](https://youtu.be/nPvTH7Siclg)
 - [A vertical axis wind turbine that doesn't need the prevailing wind! How do they do that?](https://youtu.be/gcSnwW5v3f8)
