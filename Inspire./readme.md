@@ -1,0 +1,2 @@
+- [How Can A Wind Turbine Be Motionless?](https://youtu.be/OkRqVBpO2BQ)
+- [Are Shrouded Rooftop Wind Turbines the Future of Energy?](https://youtu.be/SGQTwcq0UIY)
