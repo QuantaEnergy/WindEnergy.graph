@@ -1,0 +1,1 @@
+- [Weird Wind Generator No Blades, No Moving Parts](https://youtu.be/Nj3pH95aMOQ)
